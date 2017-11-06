@@ -1,4 +1,4 @@
 # gtiskills
-fdf
+fd
 gdfgfh
 
